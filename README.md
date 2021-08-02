@@ -1,5 +1,4 @@
-![Screenshot (41)](https://user-images.githubusercontent.com/65156793/127824174-37db1855-0814-4dcc-a8b6-71bbb5f6e79f.png)
- # DEVS CHAT 
+# DEVS CHAT 
 
 # A BRIEF OVERVIEW
 
