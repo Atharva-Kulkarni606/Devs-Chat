@@ -45,11 +45,11 @@ https://user-images.githubusercontent.com/65156793/127823084-f6054558-a302-4def-
 
 
 
-![Screenshot (29)](https://user-images.githubusercontent.com/65156793/125104133-e746f900-e091-11eb-990c-43a87fa7ae76.png)
+![Devs Chat - Google Chrome 02-08-2021 13_15_55](https://user-images.githubusercontent.com/65156793/127824026-57cdc035-9c0b-4e6d-904c-005a9b08ad2a.png)
 
 
+![Screenshot (40)](https://user-images.githubusercontent.com/65156793/127824066-1b270ee5-159b-4bfd-8661-742de636e9b7.png)
 
-![Screenshot (28)](https://user-images.githubusercontent.com/65156793/125104141-e910bc80-e091-11eb-9c9e-3be92d14bd0b.png)
 
 
 
